@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @efencee
-- 👀 I communicate through content writing.
-- 🌱 I’m currently improving my skills to become an indispensable writer.
-- 💞️ Do you have an interesting project and looking to collaborate with writers? Look no further.
+- 👋 Hi, I’m @efencee.
+- 👀 I am a project manager cum freelance content writer.
+- 🌱 I’ve birthed three plus projects in the last two years. Two of those projects have become stable programs. 
+- 💞️ Do you have an interesting project and are looking to collaborate with project/program managers and/or writers? Look no further.
 - 📫 Want to chat? Ping my email chibuokemfavour@gmail.com
 
 <!---
