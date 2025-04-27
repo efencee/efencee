@@ -1,4 +1,4 @@
-- 👋🏾 Hi, I’m @efencee.
+- 👋🏾 Hi, I’m Nzubechukwu, you can call me Enzee (NZ lol).
 - 👩🏾‍💻 I am a project manager cum freelance content writer.
 - 🌱 I’ve birthed five plus projects in the last three years. Three of those projects have become stable programs. 
 - 💞️  Got an interesting project and are looking to collaborate with project managers and/or writers? Look no further.
